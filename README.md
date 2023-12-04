@@ -1,0 +1,2 @@
+# comic---fritsko---mandang
+web
